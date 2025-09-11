@@ -23,3 +23,6 @@ precauciones
 
 https://drive.google.com/file/d/1k5wnJCoyEJhBXTSowXn9KZfnBFJowMMv/view?usp=sharing
 
+
+buscar por internte medidas y precauciones a la hora de trabajar y manipular pcs, portátiles, teléfonos, etc
+
