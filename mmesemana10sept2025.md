@@ -28,3 +28,5 @@ divendres 12 de setembre
 
 Buscar per chatgpt o alguna altre eina de de inteligencia artifical generativa(gemini, etc) mesures i precaucions a l'hora de 
 de manipulars pcs i portàtils.
+
+Buscar per youtube com es canvia la pasta térmica d'un pc
