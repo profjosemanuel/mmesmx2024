@@ -26,5 +26,5 @@ https://drive.google.com/file/d/1k5wnJCoyEJhBXTSowXn9KZfnBFJowMMv/view?usp=shari
 
 divendres 12 de setembre
 
-Buscar por chatgpt o alguna altre eina de de inteligencia artifical generativa(gemini, etc) mesures i precaucions a l'hora de 
+Buscar per chatgpt o alguna altre eina de de inteligencia artifical generativa(gemini, etc) mesures i precaucions a l'hora de 
 de manipulars pcs i portàtils.
